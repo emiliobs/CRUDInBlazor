@@ -6,10 +6,11 @@
 ![image](https://github.com/user-attachments/assets/86696a50-c415-415b-887c-07434404c161)
 
 ## Details Product
-![image](https://github.com/user-attachments/assets/836d9bc3-a100-4b5f-b788-25a871ff504f)
+![image](https://github.com/user-attachments/assets/c8bfbf50-afa6-4533-bf10-9d9d63aaf714)
 
 ## Delete Product
-![image](https://github.com/user-attachments/assets/21779ad1-3b17-46e4-901f-e585aaf14b51)
+![image](https://github.com/user-attachments/assets/defd7fec-7d12-41a1-8a93-caedcc02d6b1)
+
 
 
 
